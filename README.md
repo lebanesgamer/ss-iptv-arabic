@@ -1,2 +1,1 @@
-# ss-iptv-arabic
-this iptv url can be used on everything
+https://pastebin.com/LKLE53vR
